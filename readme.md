@@ -1,0 +1,1 @@
+## todo_homework vazifasi pycharmda bajarildi
